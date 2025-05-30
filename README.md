@@ -1,2 +1,2 @@
 # ai-jlab6
-EDA nt meal. Xd
+EDA no meal. Xd
